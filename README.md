@@ -3,7 +3,7 @@
 + Full name (eng): Pisut Sawanggam  
 + Full name  (Thai) : พิสุทธิ์ สว่างงาม  
 + Nickname : Pure    
-+ Guest :   
++ Guest : P'Tong  
 
 
 + Quality Attributes    
